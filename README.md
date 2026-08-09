@@ -1,3 +1,4 @@
 - Monitor
 - Speaker
 - Chair
+- Domain name
