@@ -2,3 +2,4 @@
 - Speaker
 - Chair
 - Domain name
+- Anker Powercore fusion
