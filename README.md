@@ -1,0 +1,7 @@
+- Shoes
+- Instant Pot
+- Air fryer
+- Decathlon bicycle
+- Gymnastics rings
+- Larger fridge
+- Musical instruments
